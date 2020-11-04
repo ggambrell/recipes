@@ -1,6 +1,9 @@
 # Day-After Thanksgiving Hash
 ### Opinion: <Bad, Good, Love>
 
+Based on:
+https://www.southernliving.com/recipes/leftover-turkey-hash
+
 Acitve - 40 min :: Total - 40 min
 Serves: 4
 
@@ -38,5 +41,3 @@ Directions:
 18. (optional) Cook over-easy eggs.
 19. (optional) Place eggs individually on top of hash.
 
-Based on:
-https://www.southernliving.com/recipes/leftover-turkey-hash
