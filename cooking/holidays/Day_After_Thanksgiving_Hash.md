@@ -37,3 +37,9 @@ Directions:
 17. Place mixtured in to serving dish.
 18. (optional) Cook over-easy eggs.
 19. (optional) Place eggs individually on top of hash.
+
+Based on:
+https://www.southernliving.com/recipes/leftover-turkey-hash
+
+Image from:
+https://www.southernliving.com/recipes/leftover-turkey-hash
