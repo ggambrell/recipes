@@ -8,5 +8,6 @@ Desserts - All types of desserts and sweets.
 Drinks - Any beverage
 
 
-TODO:
-Turn this into a .github.io webpage
+TODO:  
+- Turn this into a .github.io webpage  
+- Add images after making the recipes  
