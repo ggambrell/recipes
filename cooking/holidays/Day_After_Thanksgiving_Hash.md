@@ -40,6 +40,3 @@ Directions:
 
 Based on:
 https://www.southernliving.com/recipes/leftover-turkey-hash
-
-Image from:
-https://www.southernliving.com/recipes/leftover-turkey-hash
