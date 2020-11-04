@@ -1,6 +1,9 @@
 # Mini Pumpkin Pies with Maple Whipped Cream
 ### Opinion: <Bad, Good, Love>
 
+Based on:
+https://www.southernliving.com/recipes/mini-pumpkin-pies-with-maple-whipped-cream
+
 Acitve - 30 min :: Total - 1 hr 45 min
 Serves: 12
 
@@ -44,7 +47,4 @@ __Filling__
 __Topping__
 18. Whisk together 1/3 cup heavy whipping cream, 2 teaspoons pure maple syrup, 1/4 teaspoon vanilla extract, and 1/4 teaspoon cinnamon until stiff peaks form (1 to 2 minutes)
 19. Top or pipe whipped cream onto each pie. Sprinkle with cinnamon.
-
-Based on:
-https://www.southernliving.com/recipes/mini-pumpkin-pies-with-maple-whipped-cream
 
