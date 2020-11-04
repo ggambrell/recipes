@@ -3,7 +3,8 @@
 
 Based on: https://www.southernliving.com/recipes/pecan-tassies
 
-Acitve - min :: Total - min Serves:
+Acitve - 1 hr :: Total - 2hr 30min
+Serves: 12 - 24 (dependent on pan size)
 
 Ingedients:
 __Dough__
