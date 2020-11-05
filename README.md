@@ -9,5 +9,6 @@ Drinks - Any beverage
 
 
 TODO:  
-- Turn this into a .github.io webpage  
+- Turn this into a .github.io webpage  & blog site
+    -- Cannot copy any recipes. Have a "Planning to Try" section with only the web link
 - Add images after making the recipes  
