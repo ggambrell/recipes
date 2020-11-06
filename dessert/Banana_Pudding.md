@@ -1,7 +1,7 @@
 # Name of Recipe
 ### <Opinion: Bad, Good, Love>
 
-Based on:   
+Based on: https://www.southernliving.com/recipes/banana-pudding  
 
 Acitve - 25min :: Total - 40min
 Serves:  8-10
