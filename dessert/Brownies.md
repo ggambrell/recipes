@@ -3,20 +3,20 @@
 
 Based on: https://www.southernliving.com/recipes/best-ever-brownies  
 
-Acitve - 15 min :: Total - 1 hr 40 min
+Acitve - 15 min :: Total - 1 hr 40 min  
 Serves:  10-12
 
-Ingedients:  
-1 cup butter
-1 1/2 (4-oz.) semisweet chocolate baking bars, chopped (6 oz.) 
-2 1/2 teaspoons vanilla extract
-1 1/4 cups all-purpose flour
-1 cup Dutch-process cocoa
-1 1/4 teaspoons kosher salt
-1 2/3 cups granulated sugar
-1 cup packed light brown sugar
-3 large eggs
-1 large egg yolk
+Ingedients:    
+1 cup butter  
+1 1/2 (4-oz.) semisweet chocolate baking bars, chopped (6 oz.)   
+2 1/2 teaspoons vanilla extract  
+1 1/4 cups all-purpose flour  
+1 cup Dutch-process cocoa  
+1 1/4 teaspoons kosher salt  
+1 2/3 cups granulated sugar  
+1 cup packed light brown sugar  
+3 large eggs  
+1 large egg yolk  
 
 Directions: 
 1. Preheat oven to 350°F. 
