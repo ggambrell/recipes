@@ -3,25 +3,25 @@
 
 Based on:   
 
-Acitve - 30 min :: Total - 1hr 45min
+Acitve - 30 min :: Total - 1hr 45min  
 Serves:  
 
-Ingedients:  
-__Shells__
-80 grams extra fine almond flour
-85 grams powdered sugar
-2 large egg whites (about 60-64 grams), room temperature
-1/8 teaspoon cream of tartar
-pinch salt
-50 grams granulated sugar (about 1/4 cup)
-1/2 teaspoon vanilla
-food coloring
-
-__Filling__
-1/4 cup butter softened
-3/4 cup powdered sugar
-1/2 teaspoon vanilla extract
-1 teaspoon milk
+Ingedients:    
+__Shells__  
+80 grams extra fine almond flour  
+85 grams powdered sugar  
+2 large egg whites (about 60-64 grams), room temperature  
+1/8 teaspoon cream of tartar  
+pinch salt  
+50 grams granulated sugar (about 1/4 cup)  
+1/2 teaspoon vanilla  
+food coloring  
+  
+__Filling__  
+1/4 cup butter softened   
+3/4 cup powdered sugar  
+1/2 teaspoon vanilla extract  
+1 teaspoon milk  
 
 Directions:  
 Shells
