@@ -4,23 +4,23 @@
 Based on:
 https://www.southernliving.com/recipes/mini-pumpkin-pies-with-maple-whipped-cream
 
-Acitve - 30 min :: Total - 1 hr 45 min
-Serves: 12
+Acitve - 30 min :: Total - 1 hr 45 min  
+Serves: 12  
 
-Ingedients:
-12 (14- x 9-inch) frozen phyllo pastry sheets (from 1 [16-oz.] pkg., such as Athens), thawed 
-1/3 cup unsalted butter, melted
-1 (15-oz.) can pumpkin
-3/4 cup granulated sugar
-2/3 cup whole milk
-3 large eggs
-3/4 teaspoon kosher salt
-1/2 teaspoon ground ginger
-1/4 teaspoon ground nutmeg
-1 teaspoon ground cinnamon, (divided 3/4 and 1/4 teaspoon)
-1/3 cup heavy whipping cream
-2 teaspoons pure maple syrup
-1/4 teaspoon vanilla extract
+Ingedients:  
+12 (14- x 9-inch) frozen phyllo pastry sheets (from 1 [16-oz.] pkg., such as Athens), thawed   
+1/3 cup unsalted butter, melted  
+1 (15-oz.) can pumpkin  
+3/4 cup granulated sugar  
+2/3 cup whole milk  
+3 large eggs  
+3/4 teaspoon kosher salt  
+1/2 teaspoon ground ginger  
+1/4 teaspoon ground nutmeg  
+1 teaspoon ground cinnamon, (divided 3/4 and 1/4 teaspoon)  
+1/3 cup heavy whipping cream  
+2 teaspoons pure maple syrup  
+1/4 teaspoon vanilla extract  
 
 Directions:
 __Pastry Base__
