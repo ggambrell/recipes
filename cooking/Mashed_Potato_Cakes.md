@@ -1,7 +1,7 @@
 # Name of Recipe
 ### <Opinion: Bad, Good, Love>
 
-Based on:   
+Based on: https://www.southernliving.com/recipes/mashed-potato-cakes  
 
 Acitve - 40min :: Total - 40min
 Serves:  8 (2 cakes)
