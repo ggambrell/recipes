@@ -3,35 +3,35 @@
 
 Based on: https://www.southernliving.com/recipes/chocolate-chip-cookie-cake  
 
-Acitve - 20min :: Total - 1hr 45min
+Acitve - 20min :: Total - 1hr 45min  
 Serves:  
 
-Ingedients:  
-__Cookie Cake__
-12 tablespoons unsalted butter, room temperature 
-1 cup light brown sugar
-1/4 cup granulated sugar
-1 egg
-1 egg yolk
-1 tablespoon vanilla extract
-1 tablespoon whole milk 
-1 3/4 cup all-purpose flour
-3 tablespoons nonfat milk powder
-1 teaspoon kosher salt
-3/4 teaspoon baking soda
-1/2 teaspoon baking powder
-1 cup semisweet chocolate chips
+Ingedients:    
+__Cookie Cake__  
+12 tablespoons unsalted butter, room temperature   
+1 cup light brown sugar  
+1/4 cup granulated sugar  
+1 egg  
+1 egg yolk  
+1 tablespoon vanilla extract  
+1 tablespoon whole milk   
+1 3/4 cup all-purpose flour  
+3 tablespoons nonfat milk powder  
+1 teaspoon kosher salt  
+3/4 teaspoon baking soda  
+1/2 teaspoon baking powder  
+1 cup semisweet chocolate chips  
 
-__Chocolate Frosting__
-1 stick unsalted butter, room temperature
-1 3/4 cup powdered sugar
-5 tablespoons unsweetened cocoa powder
-1/8 teaspoon kosher salt
-1/2 teaspoon clear vanilla extract
+__Chocolate Frosting__  
+1 stick unsalted butter, room temperature  
+1 3/4 cup powdered sugar  
+5 tablespoons unsweetened cocoa powder  
+1/8 teaspoon kosher salt  
+1/2 teaspoon clear vanilla extract  
 
-__Additional Equipment__
-10-inch springform pan
-Rainbow sprinkles for decoration, optional
+__Additional Equipment__  
+10-inch springform pan  
+Rainbow sprinkles for decoration, optional  
 
 Directions:  
 1. Preheat oven to 350°F. 
