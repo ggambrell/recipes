@@ -1,18 +1,12 @@
 # Name of Recipe
-### <Opinion: Bad, Good, Love>
+### Opinion: <Bad, Good, Love>
 
-Based on:   
+Based on: https://www.southernliving.com/recipes/alabama-hush-puppies  
 
 Acitve - 32min :: Total - 32min
 Serves:  3 dozen
 
 Ingedients:  
-
-Directions:  
-
-
-Ingredients
-Ingredient Checklist
 Vegetable oil, for frying
 1 3/4 cups plain white cornmeal
 1/4 cup all-purpose flour
@@ -22,32 +16,15 @@ Vegetable oil, for frying
 1 large egg, lightly beaten
 1 cup milk 
 1/2 cup finely chopped onion
-Tartar sauce for dipping (optional)
-Local Offers
-ZIP 20149
 
+Directions:  
+1. Pour oil to a depth of 3 inches into a large heavy saucepan; heat over medium-high heat to 365°F.
+2. Combine cornmeal flour, baking powder, salt, and ground red pepper in a medium bowl.
+3. Make a well in center of mixture. 
+4. Stir together egg, milk, and onion
+5. Add to dry mixture, stirring just until moistened.
+6. Drop batter by tablespoonfuls into hot oil. Fry 2 minutes or until browned. 
+7. Drain on a wire rack over paper towels. 
 
-Target
-45130 Columbia Pl
-STERLING, VA 20166
-
-
-Fairlife Ultra-Filtered 2% Reduced Fat Milk 52 Fl Oz
-10.00% Off For 1 item - expires in 1 day
-
-
-Walgreens
-42820 Creek View Plz
-ASHBURN, VA 20147
-
-
-• •
-DirectionsInstructions Checklist
-Step 1
-Pour oil to a depth of 3 inches into a large heavy saucepan; heat over medium-high heat to 365°F.
-
-Step 2
-Combine cornmeal and next 4 ingredients in a medium bowl; make a well in center of mixture. Stir together egg, milk, and onion; add to dry mixture, stirring just until moistened.
-
-Step 3
-Drop batter by tablespoonfuls, 6 at a time, into hot oil. Fry 2 minutes or until browned. Drain on a wire rack over paper towels. Serve with tartar sauce, if desired.
+Note:
+Use piping bag to make longer puppies, or designed puppies. 
