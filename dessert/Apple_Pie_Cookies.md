@@ -7,23 +7,23 @@ Acitve - 50 min :: Total - 1 hr 30 min
 Serves: 12   
 
 Ingedients:  
-__Cookies__
-1/2 cup butter, room temperature 
-2 tablespoons vegetable shortening
-1 cup granulated sugar
-1 egg
-1 teaspoon vanilla extract
-3 cups all-purpose flour
-2 teaspoons baking powder
-1/2 teaspoon baking soda
-1 teaspoon kosher salt
-1/2 cup whole milk
-1 (15-oz.) can apple pie filling
+__Cookies__  
+1/2 cup butter, room temperature   
+2 tablespoons vegetable shortening  
+1 cup granulated sugar  
+1 egg  
+1 teaspoon vanilla extract  
+3 cups all-purpose flour  
+2 teaspoons baking powder  
+1/2 teaspoon baking soda  
+1 teaspoon kosher salt  
+1/2 cup whole milk  
+1 (15-oz.) can apple pie filling  
 
-__Icing__
-1 cup powdered sugar
-1/2 teaspoon ground cinnamon
-4 teaspoons whole milk, more or less as needed
+__Icing__  
+1 cup powdered sugar   
+1/2 teaspoon ground cinnamon  
+4 teaspoons whole milk, more or less as needed  
 
 Directions:  
 1. Combine butter, shortening, and sugar in the bowl of a stand mixer. Beat to combine.
