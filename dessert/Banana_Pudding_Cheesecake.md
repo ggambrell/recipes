@@ -3,21 +3,21 @@
 
 Based on: https://www.southernliving.com/recipes/banana-pudding-cheesecake  
 
-Acitve - 45min :: Total - 2hr
+Acitve - 45min :: Total - 2hr  
 Serves:  
 
-Ingedients:  
-1 1/2 cups finely crushed vanilla wafers
-4 tablespoons butter, melted 
-17 vanilla wafers
-2 diced ripe bananas
-1 tablespoon lemon juice
-2 tablespoons brown sugar
-24 ounces cream cheese, softened
-1 cup sugar
-3 eggs
-2 teaspoons vanilla extract
-1/2 cup coarsely crushed vanilla wafers
+Ingedients:    
+1 1/2 cups finely crushed vanilla wafers  
+4 tablespoons butter, melted   
+17 vanilla wafers  
+2 diced ripe bananas  
+1 tablespoon lemon juice  
+2 tablespoons brown sugar  
+24 ounces cream cheese, softened  
+1 cup sugar  
+3 eggs  
+2 teaspoons vanilla extract  
+1/2 cup coarsely crushed vanilla wafers  
 
 Directions:  
 1. Preheat oven to 350°. 
