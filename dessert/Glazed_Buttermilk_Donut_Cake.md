@@ -1,7 +1,7 @@
 # Name of Recipe
 ### <Opinion: Bad, Good, Love>
 
-Based on:   
+Based on: https://www.southernliving.com/recipes/glazed-donut-cake  
 
 Acitve - 15 min :: Total - 2hr 20min
 Serves: 10-12 
