@@ -36,7 +36,7 @@ Directions:
 9. Divide batter evenly among prepared pans. 
 10. Bake in preheated oven until a wooden pick inserted in center comes out with moist crumbs (~22 minutes)
 
-11.Cool cake layers in pans on a wire rack (20 minutes) 
+11. Cool cake layers in pans on a wire rack (20 minutes) 
 12. Remove cake layers from pans; cool completely on rack (30 minutes)
 
 13. Place chocolate chips, light corn syrup, and 3 tablespoons of the heavy cream in a microwavable bowl. 
