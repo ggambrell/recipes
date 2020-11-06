@@ -1,5 +1,5 @@
 # Name of Recipe
-### <Opinion: Bad, Good, Love>
+### Opinion: <Bad, Good, Love>
 
 Based on:   
 
