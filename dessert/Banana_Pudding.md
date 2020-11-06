@@ -1,22 +1,22 @@
-# Name of Recipe
-### <Opinion: Bad, Good, Love>
+# Banana Pudding
+### Opinion: <Bad, Good, Love>
 
 Based on: https://www.southernliving.com/recipes/banana-pudding  
 
-Acitve - 25min :: Total - 40min
-Serves:  8-10
+Acitve - 25min :: Total - 40min  
+Serves:  8-10  
 
-Ingedients:  
-1/2 cup sugar
-2 tablespoons cornstarch
-1 teaspoon salt
-2 1/4 cups milk 
-4 large eggs, separated
-2 tablespoons unsalted butter 
-1 teaspoon vanilla extract
-3 1/3 cups vanilla wafers
-4 ripe bananas
-3 tablespoons sugar
+Ingedients:    
+1/2 cup sugar  
+2 tablespoons cornstarch  
+1 teaspoon salt  
+2 1/4 cups milk   
+4 large eggs, separated  
+2 tablespoons unsalted butter   
+1 teaspoon vanilla extract  
+3 1/3 cups vanilla wafers  
+4 ripe bananas  
+3 tablespoons sugar  
 
 Directions:  
 1. Preheat oven to 375°. 
