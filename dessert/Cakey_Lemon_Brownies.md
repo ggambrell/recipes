@@ -1,7 +1,7 @@
 # Name of Recipe
 ### <Opinion: Bad, Good, Love>
 
-Based on:   
+Based on: https://www.southernliving.com/recipes/lemon-brownies  
 
 Acitve - 15 min :: Total - 1hr 40min
 Serves:  8
