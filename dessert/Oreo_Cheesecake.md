@@ -3,29 +3,29 @@
 
 Based on: https://www.southernliving.com/recipes/oreo-cheesecake  
 
-Acitve - 30min :: Total - 10 hr
+Acitve - 30min :: Total - 10 hr  
 Serves:  
 
-Ingedients:  
-__Crust__
-16 whole Oreos
-4 tablespoons butter, melted 
+Ingedients:    
+__Crust__  
+16 whole Oreos  
+4 tablespoons butter, melted   
 
-__Filling__
-3 (8-oz.) pckg. cream cheese
-2/3 cup sugar
-2/3 cup sour cream
-3 eggs
-3 tablespoons all-purpose flour
-1 teaspoon vanilla
-Pinch of salt
-12 whole Oreos, broken into pieces
+__Filling__  
+3 (8-oz.) pckg. cream cheese  
+2/3 cup sugar  
+2/3 cup sour cream  
+3 eggs  
+3 tablespoons all-purpose flour  
+1 teaspoon vanilla  
+Pinch of salt  
+12 whole Oreos, broken into pieces  
 
-__Topping__
-2/3 cup powdered sugar
-2 tablespoons sour cream
-Pinch of salt
-4 whole Oreos, broken into pieces, for garnish
+__Topping__  
+2/3 cup powdered sugar  
+2 tablespoons sour cream  
+Pinch of salt  
+4 whole Oreos, broken into pieces, for garnish  
 
 Directions:  
 1. Preheat oven to 350°F. 
