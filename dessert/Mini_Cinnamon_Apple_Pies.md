@@ -3,22 +3,22 @@
 
 Based on: https://www.southernliving.com/recipes/mini-cinnamon-apple-pie   
 
-Acitve - 1 hr :: Total - 3 hr
-Serves:  12
+Acitve - 1 hr :: Total - 3 hr  
+Serves:  12  
 
-Ingedients:  
-1/4 cup unsalted butter
-11 cups chopped (about 1/2-inch pieces), unpeeled Granny Smith apples (about 5 large apples)
-1 cup packed light brown sugar
-3 tablespoons fresh lemon juice (from 1 lemon)
-2 teaspoons ground cinnamon
-1 teaspoon kosher salt
-2 1/2 tablespoons cornstarch
-2 1/2 tablespoons cold water
-2 1/2 (14.1-oz. or 15-oz.) pkg. refrigerated piecrusts 
-All-purpose flour, for work surface
-1 large egg white, lightly beaten
-1 1/2 teaspoons turbinado sugar
+Ingedients:    
+1/4 cup unsalted butter  
+11 cups chopped (about 1/2-inch pieces), unpeeled Granny Smith apples (about 5 large apples)  
+1 cup packed light brown sugar   
+3 tablespoons fresh lemon juice (from 1 lemon)  
+2 teaspoons ground cinnamon  
+1 teaspoon kosher salt  
+2 1/2 tablespoons cornstarch  
+2 1/2 tablespoons cold water  
+2 1/2 (14.1-oz. or 15-oz.) pkg. refrigerated piecrusts   
+All-purpose flour, for work surface  
+1 large egg white, lightly beaten  
+1 1/2 teaspoons turbinado sugar  
 
 Directions:  
 1. Preheat oven to 375°F. 
