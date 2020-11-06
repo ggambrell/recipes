@@ -3,16 +3,16 @@
 
 Based on: https://sallysbakingaddiction.com/creme-brulee/  
 
-Acitve - 20 min :: Total - 2hr + overnight
+Acitve - 20 min :: Total - 2hr + overnight  
 Serves: 8 
 
-Ingedients:  
-5 large egg yolks
-3/4 cup (150g) granulated sugar, divided
-3 cups (720ml) heavy cream or heavy whipping cream*
-1/2 teaspoon espresso powder (optional but recommended)*
-1/4 teaspoon salt
-1 and 1/2 teaspoons pure vanilla extract*
+Ingedients:    
+5 large egg yolks  
+3/4 cup (150g) granulated sugar, divided   
+3 cups (720ml) heavy cream or heavy whipping cream*   
+1/2 teaspoon espresso powder (optional but recommended)*   
+1/4 teaspoon salt   
+1 and 1/2 teaspoons pure vanilla extract*   
 
 Directions:  
 Preheat oven to 325°F (163°C).
