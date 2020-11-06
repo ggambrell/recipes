@@ -7,20 +7,20 @@ Acitve - 1 hr :: Total - 2hr 30min
 Serves: 12 - 24 (dependent on pan size)
 
 Ingedients:
-__Dough__
-1/2 cup pecans
-1/2 cup unsalted butter, room temperature 
-4 ounces cream cheese, room temperature
-1 cup all-purpose flour
+__Dough__  
+1/2 cup pecans  
+1/2 cup unsalted butter, room temperature   
+4 ounces cream cheese, room temperature  
+1 cup all-purpose flour  
 
-__Filling__
-1 large egg
-2/3 cup light brown sugar
-2 tablespoons maple syrup
-1 1/2 teaspoon vanilla extract
-1/4 teaspoon kosher salt
-1 teaspoon bourbon, optional
-1/2 cup chopped pecans, toasted
+__Filling__  
+1 large egg  
+2/3 cup light brown sugar  
+2 tablespoons maple syrup  
+1 1/2 teaspoon vanilla extract  
+1/4 teaspoon kosher salt  
+1 teaspoon bourbon, optional  
+1/2 cup chopped pecans, toasted  
 
 Directions:
 __Dough__
