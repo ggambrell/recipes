@@ -3,25 +3,25 @@
 
 Based on: https://www.southernliving.com/recipes/chocolate-mayonnaise-cake-recipe  
 
-Acitve - 25 min :: Total - 2 hr 10min
+Acitve - 25 min :: Total - 2 hr 10min  
 Serves:  10
 
-Ingedients:  
-1 1/2 cups hot milk (hot strong brewed coffee)
-1 cup unsweetened cocoa
-3 cups all-purpose flour
-2 teaspoons baking soda
-1/2 teaspoon baking powder
-1/2 teaspoon plus 1/4 tsp. salt, divided
-2 1/2 cups granulated sugar
-4 large eggs
-1 cup mayonnaise (such as Duke’s)
-2 teaspoons vanilla extract, divided
-1 1/4 cups bittersweet chocolate chips
-2 tablespoons light corn syrup
-3-4 tablespoons heavy cream, divided
-3/4 cup unsalted butter, softened 
-4 cups powdered sugar, divided
+Ingedients:    
+1 1/2 cups hot milk (hot strong brewed coffee)  
+1 cup unsweetened cocoa  
+3 cups all-purpose flour  
+2 teaspoons baking soda  
+1/2 teaspoon baking powder  
+1/2 teaspoon plus 1/4 tsp. salt, divided  
+2 1/2 cups granulated sugar  
+4 large eggs  
+1 cup mayonnaise (such as Duke’s)  
+2 teaspoons vanilla extract, divided  
+1 1/4 cups bittersweet chocolate chips  
+2 tablespoons light corn syrup  
+3-4 tablespoons heavy cream, divided  
+3/4 cup unsalted butter, softened   
+4 cups powdered sugar, divided  
 
 Directions:  
 1. Whisk together hot milk and cocoa  in a bowl. 
