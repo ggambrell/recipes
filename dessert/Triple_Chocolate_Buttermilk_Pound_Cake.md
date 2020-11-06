@@ -1,19 +1,13 @@
-# Name of Recipe
-### <Opinion: Bad, Good, Love>
+# Triple Chocolate Buttermilk Pound Cake
+### Opinion: <Bad, Good, Love>
 
-Based on:   
+Based on: https://www.southernliving.com/recipes/buttermilk-chocolate-pound-cake  
 
 Acitve - 45min :: Total - 4hr 25min
 Serves:  12
 
 Ingedients:  
-
-Directions:  
-
-
-Ingredients
-Ingredient Checklist
-CAKE
+__CAKE__
 2 cups all-purpose flour
 3/4 cup unsweetened cocoa
 1/2 teaspoon baking powder
@@ -22,50 +16,50 @@ CAKE
 3 cups granulated sugar
 5 large eggs, at room temperature
 1 1/4 cups buttermilk
-2 teaspoons instant espresso
+2 teaspoons instant espresso (optional)
 2 teaspoons vanilla extract
 1 cup 60% cacao bittersweet chocolate morsels
 Shortening
-CHOCOLATE GLAZE
+
+__CHOCOLATE GLAZE__
 3/4 cup semisweet chocolate morsels
 3 tablespoons butter
 1 tablespoon light corn syrup
 1/2 teaspoon vanilla extract
-BUTTERMILK GLAZE
+
+__BUTTERMILK GLAZE__
 1 cup powdered sugar
 1-2 tablespoons buttermilk
 1/4 teaspoon vanilla extract
-Local Offers
-ZIP 20149
 
+Directions:  
+Cake
+1. Preheat oven to 325°. 
+2. Whisk together flour, cocoa, baking powder, salt. 
+3. Beat 1 1/2 cups butter in a medium bowl at medium-high speed with an electric mixer until smooth. 
+4. Gradually add granulated sugar, beating until light and fluffy. 
+5. Add eggs, 1 at a time, beating just until yolk disappears. 
+6. Combine 1 1/4 cups buttermilk, vanilla extract, and instant espresso (optional). 
+7. Add flour mixture to egg mixture alternating with buttermilk mixture, beginning and ending with flour mixture. 
+8. Beat at low speed after each addition. 
+9. Fold in bittersweet chocolate morsels. 
+10. Pour batter into a well-greased (with shortening) and floured 12-cup Bundt pan. 
+11. Sharply tap pan on counter to remove air bubbles.
 
-Target
-45130 Columbia Pl
-STERLING, VA 20166
+12. Bake at 325° (1 hour and 15 minutes or until a wooden pick inserted in center comes out clean) 
+13. Cool in pan on a wire rack (20 minutes) 
+14. Remove from pan; cool completely on rack.
 
+Glaze 1 (Chocolate)
+15. Combine semisweet chocolate morsels, 3 Tbsp. butter, and 1 Tbsp. corn syrup in a microwave-safe glass bowl. 
+16. Microwave until morsels begin to melt, stirring every 30 seconds until smooth. 
+Stir in 1/2 tsp. vanilla.
 
-Unsalted Butter - 1lb - Good & Gather™
-See Store For Price - expires in 3 weeks
+Glaze 2 (Buttermilk)
+17. Whisk together powdered sugar, 1 Tbsp. buttermilk, and 1/4 tsp. vanilla in a small bowl until smooth. 
+18. Add up to 1 Tbsp. buttermilk, if desired. 
+19. Drizzle warm glazes over cooled cake.
 
-
-Walmart
-45415 Dulles Crossing Plz
-STERLING, VA 20166
-
-
-• •
-DirectionsInstructions Checklist
-Step 1
-Prepare Cake: Preheat oven to 325°. Whisk together flour and next 3 ingredients. Beat 1 1/2 cups butter in a medium bowl at medium-high speed with an electric mixer until smooth. Gradually add granulated sugar, beating until light and fluffy. Add eggs, 1 at a time, beating just until yolk disappears. Combine 1 1/4 cups buttermilk and next 2 ingredients. Add flour mixture to egg mixture alternately with buttermilk mixture, beginning and ending with flour mixture. Beat at low speed after each addition. Fold in bittersweet chocolate morsels. Pour batter into a well-greased (with shortening) and floured 12-cup Bundt pan. Sharply tap pan on counter to remove air bubbles.
-
-Step 2
-Bake at 325° for 1 hour and 15 minutes to 1 hour and 25 minutes or until a wooden pick inserted in center comes out clean. Cool in pan on a wire rack 20 minutes. Remove from pan; cool completely on rack.
-
-Step 3
-Prepare Chocolate Glaze: Combine semisweet chocolate morsels, 3 Tbsp. butter, and 1 Tbsp. corn syrup in a microwave-safe glass bowl. Microwave at MEDIUM (50% power) 1 to 1 1/2 minutes or until morsels begin to melt, stirring after 1 minute. Stir until smooth. Stir in 1/2 tsp. vanilla.
-
-Step 4
-Prepare Buttermilk Glaze: Whisk together powdered sugar, 1 Tbsp. buttermilk, and 1/4 tsp. vanilla in a small bowl until smooth. Add up to 1 Tbsp. buttermilk, if desired. Drizzle warm glazes over cooled cake.
-
-Step 5
-Mini Triple-Chocolate Buttermilk Pound Cakes: Prepare recipe as directed through Step 1, pouring batter into 2 lightly greased (with vegetable cooking spray) 12-cup Bundt brownie pans, filling each about three-fourths full. Bake at 325° for 26 to 30 minutes. Cool in pans on wire racks 10 minutes; remove from pans, and cool completely. Proceed with recipe as directed in Steps 3 and Makes 2 dozen. Hands-on 45 min.; Total 1 hour, 25 min.
+Notes:
+1.Mini Triple-Chocolate Buttermilk Pound Cakes: Prepare recipe as directed through Step 9. Pour batter into square or cirle cake pans. Bake for 20-30 minutes until toothpick or knife comes out clean. Cool in pans on wire racks 10 minutes; remove from pans, and cool completely. Proceed with recipe as directed in Steps 3 and Makes 2 dozen.
+2. Make white chocolate or caramel glaze instead of buttermilk glaze.
