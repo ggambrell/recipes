@@ -3,22 +3,22 @@
 
 Based on: https://www.southernliving.com/recipes/lemon-brownies  
 
-Acitve - 15 min :: Total - 1hr 40min
+Acitve - 15 min :: Total - 1hr 40min  
 Serves:  8
 
-Ingedients:  
-3/4 cup granulated sugar
-1/2 cup (4 oz.) salted butter, softened 
-2 large eggs
-2 teaspoons lemon zest plus 2 Tbsp. fresh juice (from 1 lemon)
-2 ounces white chocolate, melted
-1 cup (about 4 1/4 oz.) all-purpose flour
-1/2 teaspoon baking powder
-Lemon Frosting
-4 ounces cream cheese, softened
-1 cup (about 4 oz.) powdered sugar
-1 teaspoon fresh lemon juice (from 1 lemon)
-1-2 teaspoons whole milk 
+Ingedients:    
+3/4 cup granulated sugar  
+1/2 cup (4 oz.) salted butter, softened   
+2 large eggs  
+2 teaspoons lemon zest plus 2 Tbsp. fresh juice (from 1 lemon)  
+2 ounces white chocolate, melted  
+1 cup (about 4 1/4 oz.) all-purpose flour 
+1/2 teaspoon baking powder  
+Lemon Frosting  
+4 ounces cream cheese, softened  
+1 cup (about 4 oz.) powdered sugar  
+1 teaspoon fresh lemon juice (from 1 lemon)  
+1-2 teaspoons whole milk   
 
 Directions:  
 1. Preheat oven to 350°F. 
