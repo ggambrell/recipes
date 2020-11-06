@@ -3,42 +3,42 @@
 
 Based on: https://sallysbakingaddiction.com/sky-high-chocolate-mousse-pie/  
 
-Acitve - 40min :: Total - 5hr 30min
+Acitve - 40min :: Total - 5hr 30min  
 Serves:  8-10
 
 Ingedients:  
-__Oreo Crust__
-18 whole Oreos, crushed into crumbs
-1/4 cup (4 Tablespoons; 60g) unsalted butter, melted
+__Oreo Crust__  
+18 whole Oreos, crushed into crumbs  
+1/4 cup (4 Tablespoons; 60g) unsalted butter, melted  
 
-__Chocolate Mousse Layer__
- two 4-ounce bars unsweetened chocolate, coarsely chopped (8 ounces total)
-2 Tablespoons (30g) unsalted butter
-4 large egg whites*
-1 cup (200g) granulated sugar
-1/4 teaspoon cream of tartar*
-2 cups (480ml) heavy cream/heavy whipping cream
-6 whole Oreos, crushed into crumbs
+__Chocolate Mousse Layer__  
+ two 4-ounce bars unsweetened chocolate, coarsely chopped (8 ounces total)  
+2 Tablespoons (30g) unsalted butter  
+4 large egg whites*  
+1 cup (200g) granulated sugar  
+1/4 teaspoon cream of tartar*  
+2 cups (480ml) heavy cream/heavy whipping cream  
+6 whole Oreos, crushed into crumbs  
 
-__Whipped Cream__
-1 cup (280ml) heavy cream/heavy whipping cream
-1 Tablespoon (13g) granulated sugar
-1/2 teaspoon pure vanilla extract
-dark/milk/white chocolate shavings for topping*
+__Whipped Cream__  
+1 cup (280ml) heavy cream/heavy whipping cream  
+1 Tablespoon (13g) granulated sugar  
+1/2 teaspoon pure vanilla extract  
+dark/milk/white chocolate shavings for topping*  
 
-Directions:  
-Crust:
+Directions:    
+Crust:   
 1. Preheat oven to 350°F 
 2. Combine the Oreo crumbs and melted butter together in a medium bowl. 
 3. Press tightly into the bottom and up the sides of an ungreased 9-inch pie dish. 
 4. Bake for 18 minutes. 
 5. Allow to cool completely. (**can be done the night before**)
 
-Chocolate mousse: 
+Chocolate mousse:   
 6. Microwave the chopped chocolate and butter together in a large heat-proof bowl, stopping and stirring every 15 seconds until completely melted. 
 7. Set aside.
 
-Meringue for the mousse layer: 
+Meringue for the mousse layer:   
 8. Place egg whites, sugar, and cream of tartar in a heatproof bowl. 
 9. Set bowl over a saucepan filled with two inches of simmering water. Do not let it touch the water. (You can use a double boiler if you have one.) 
 10. Whisk constantly until sugar is dissolved, about 4 minutes. 
