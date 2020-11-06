@@ -3,23 +3,23 @@
 
 Based on: https://www.southernliving.com/recipes/cinnamon-coffee-cake  
 
-Acitve - 30min :: Total - 3hr 30min
+Acitve - 30min :: Total - 3hr 30min  
 Serves:  12
 
-Ingedients:  
-2 teaspoons ground cinnamon
-3 1/2 cups cake flour, divided, plus more for pan
-1 1/2 cups packed light brown sugar, divided
-1 1/2 teaspoons kosher salt, divided
-1/2 cup (4 oz.) chilled unsalted butter, cut into 1/2-in. pieces 
-3/4 cup (6 oz.) unsalted butter, softened
-1 cup granulated sugar
-4 large eggs
-2 teaspoons vanilla extract
-2 teaspoons baking powder
-1/4 teaspoon baking soda
-1 (8-oz.) container sour cream
-Shortening, for greasing pan
+Ingedients:    
+2 teaspoons ground cinnamon  
+3 1/2 cups cake flour, divided, plus more for pan  
+1 1/2 cups packed light brown sugar, divided  
+1 1/2 teaspoons kosher salt, divided  
+1/2 cup (4 oz.) chilled unsalted butter, cut into 1/2-in. pieces   
+3/4 cup (6 oz.) unsalted butter, softened  
+1 cup granulated sugar  
+4 large eggs  
+2 teaspoons vanilla extract  
+2 teaspoons baking powder  
+1/4 teaspoon baking soda  
+1 (8-oz.) container sour cream  
+Shortening, for greasing pan  
 
 Directions:  
 1. Stir together 1 cup of the flour, 1 cup of the brown sugar, and 1 teaspoon of the salt in a bowl. 
