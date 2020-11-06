@@ -3,29 +3,29 @@
 
 Based on: https://www.southernliving.com/recipes/mississippi-mud-cake  
 
-Acitve - 15min :: Total - 2hr 35min
+Acitve - 15min :: Total - 2hr 35min  
 Serves:  
 
-Ingedients:  
-__Cake__
-Cooking spray
-3/4 cup (6 oz.) unsalted butter 
-2 ounces bittersweet chocolate, chopped
-1 1/2 cups granulated sugar
-4 large eggs
-1 1/4 cups all-purpose flour
-6 tablespoons unsweetened cocoa
-3/4 teaspoon baking powder
-Dash of salt
-1 teaspoon vanilla extract
-1 (10-oz.) package mini marshmallows
+Ingedients:    
+__Cake__  
+Cooking spray  
+3/4 cup (6 oz.) unsalted butter   
+2 ounces bittersweet chocolate, chopped  
+1 1/2 cups granulated sugar  
+4 large eggs  
+1 1/4 cups all-purpose flour  
+6 tablespoons unsweetened cocoa  
+3/4 teaspoon baking powder   
+Dash of salt  
+1 teaspoon vanilla extract  
+1 (10-oz.) package mini marshmallows  
 
-__Chocolate Frosting__
-1/2 cup (4 oz.) unsalted butter
-1/3 cup whole milk 
-1/4 cup unsweetened cocoa
-1 (16-oz.) package powdered sugar, sifted
-1 teaspoon vanilla extract
+__Chocolate Frosting__  
+1/2 cup (4 oz.) unsalted butter  
+1/3 cup whole milk   
+1/4 cup unsweetened cocoa  
+1 (16-oz.) package powdered sugar, sifted  
+1 teaspoon vanilla extract  
 
 Directions:  
 1. Preheat oven to 325˚F. 
