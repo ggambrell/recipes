@@ -3,22 +3,22 @@
 
 Based on: https://www.southernliving.com/recipes/glazed-donut-cake  
 
-Acitve - 15 min :: Total - 2hr 20min
+Acitve - 15 min :: Total - 2hr 20min  
 Serves: 10-12 
 
-Ingedients:  
-1 1/2 cups granulated sugar
-1 cup (8 oz.) unsalted butter, softened 
-4 large eggs, at room temperature
-2 teaspoons vanilla extract
-3 1/2 cups (about 14 7/8 oz.) all-purpose flour
-2 teaspoons baking powder
-1 teaspoon kosher salt
-3/4 teaspoon ground nutmeg
-1/2 teaspoon baking soda
-1 cup whole buttermilk
-2 cups (about 8 oz.) powdered sugar
-1/4 cup water
+Ingedients:    
+1 1/2 cups granulated sugar  
+1 cup (8 oz.) unsalted butter, softened   
+4 large eggs, at room temperature  
+2 teaspoons vanilla extract  
+3 1/2 cups (about 14 7/8 oz.) all-purpose flour  
+2 teaspoons baking powder  
+1 teaspoon kosher salt  
+3/4 teaspoon ground nutmeg  
+1/2 teaspoon baking soda  
+1 cup whole buttermilk  
+2 cups (about 8 oz.) powdered sugar  
+1/4 cup water  
 
 Directions:  
 1. Preheat oven to 350°F. 
