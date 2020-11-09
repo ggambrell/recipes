@@ -6,6 +6,8 @@ Based on:
 Acitve - <time>min :: Total - <time>min
 Serves:  
 
+Equipment:
+
 Ingedients:  
 
 Directions:  
