@@ -1,7 +1,7 @@
 # Name of Recipe
 ### Opinion: <Bad, Good, Love>
 
-Based on: https://sugargeekshow.com/recipe/rainbow-cake/  
+Based on: https://sugargeekshow.com/recipe/rainbow-cake/ & https://www.lifeloveandsugar.com/how-to-make-a-chocolate-drip-cake/  
 
 Acitve - 20min :: Total - 40min
 Serves: 14  
