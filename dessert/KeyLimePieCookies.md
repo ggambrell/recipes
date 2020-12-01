@@ -38,9 +38,9 @@ Directions:
 9. Remove from oven and allow cookies to cool on pan for 2-3 minutes, then transfer to a wire rack to cool completely.
    
 Filling:  
-11. In bowl of a stand mixer fitted with paddle attachment, mix butter and zest until combined and smooth. 
-12. Turn mixer to low and slowly add in powdered sugar and key lime juice. Mix until combined, then turn mixer to medium and beat for 1-2 minutes until creamy and smooth, scraping sides of bowl as necessary.
-13. Turn half of cookies upside down. 
-14. Fill a piping bag (or a zip-top bag with corner cut off) with key lime filling and pipe on approximately 2 tablespoons onto bottoms of half of cookies. 
-15. Place other half of cookies on top of filling, creating sandwiches.
-16. Store airtight for up to 3 days.
+11. In bowl of a stand mixer fitted with paddle attachment, mix butter and zest until combined and smooth.   
+12. Turn mixer to low and slowly add in powdered sugar and key lime juice. Mix until combined, then turn mixer to medium and beat for 1-2 minutes until creamy and smooth, scraping sides of bowl as necessary.  
+13. Turn half of cookies upside down.   
+14. Fill a piping bag (or a zip-top bag with corner cut off) with key lime filling and pipe on approximately 2 tablespoons onto bottoms of half of cookies.   
+15. Place other half of cookies on top of filling, creating sandwiches.  
+16. Store airtight for up to 3 days.  
