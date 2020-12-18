@@ -1,1 +1,4 @@
-# Gambrell Recipes
+---
+layout: post
+title: Front Page
+---
