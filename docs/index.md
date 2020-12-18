@@ -1,3 +1,7 @@
+---
+layout: default
+---
+
 Link 1  
 
 Link 2  
