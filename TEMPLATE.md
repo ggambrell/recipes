@@ -3,7 +3,7 @@
 
 Based on:   
 
-Acitve - <time>min :: Total - <time>min  
+Acitve - <time> min :: Total - <time> min  
 
 Serves:   
 
