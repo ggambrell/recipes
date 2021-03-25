@@ -1,4 +1,4 @@
-# Name of Recipe
+# Pizza Ring
 ### Opinion: <Bad, Good, Love>
 
 Based on: https://www.tasteofhome.com/recipes/pizza-ring/  
