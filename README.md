@@ -5,6 +5,8 @@ Cooking - Anything not drinks or desserts. Any meal.
 
 Desserts - All types of desserts and sweets. 
 
+Designs - Different and interesting designs to try.
+
 Drinks - Any beverage
 
 
